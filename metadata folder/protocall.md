@@ -26,7 +26,7 @@ Heat a lightly oiled griddle or frying pan over medium-high heat. Pour or scoop 
 
 Serve hot and enjoy!
 
-![alt text](C:\Users\Eitan\Desktop\rm\Screenshot)
+![Screenshot](https://github.com/Peitan123/research_methods/assets/118106524/3acbb042-4aa5-4c69-beeb-b9abb82e9e70)
 
 ### Table of Recipe Ratios
 
